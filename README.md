@@ -1,2 +1,2 @@
 # samila
-The beach of province where I was borned
+The beach name of a province where I was borned
